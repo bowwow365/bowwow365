@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bowwow365
+- 👀 I’m interested in technology and learning about it.
+- 🌱 I’m currently learning how Apple is making phone a quickely as they do
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me sroar360@outlook.com
